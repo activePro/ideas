@@ -1,2 +1,2 @@
 # ideas
-thinking  all here to collide
+thinkings  all here to collide
